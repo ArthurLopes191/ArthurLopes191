@@ -1,4 +1,4 @@
-# Opa, me chamo Arthur Lopes. Tudo certo? <img align="right" alt="hangloose"  height="100" width="150" src="https://pro2-bar-s3-cdn-cf1.myportfolio.com/2b7eb2708c980490a28096692af57b90/2a834730-aaeb-4429-b8e0-9fb3198e512c_car_16x9.gif?h=cc90114d85ca25ec07e2e59c6897d980">
+# Olá, me chamo Arthur Lopes
 <br>
 <br>
 <br>
